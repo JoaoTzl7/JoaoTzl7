@@ -7,7 +7,7 @@
 
 - 🚀 Curiosidades sobre min: gosto de jogar videogame e sair e de palmitar
 
-- 📊 Sou muito engraçado e legal e puto
+- 📊 Sou muito engraçado e legal e puto,adoro mulher casada
 
 <br><br>
 
