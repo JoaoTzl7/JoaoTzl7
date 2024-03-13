@@ -7,7 +7,7 @@
 
 - 🚀 Curiosidades sobre min: gosto de jogar videogame e sair 
 
-- 📊 Sou muito engraçado e legal e gosta de da a bumda
+- 📊 Sou muito engraçado e legal
 
 <br><br>
 
